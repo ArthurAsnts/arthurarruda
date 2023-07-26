@@ -1,1 +1,1 @@
-INSTAGRAM: [@arthurarruda__](https://www.instagram.com/)  Linkedin:[@ArthurArruda](https://www.linkedin.com/in/arthur-arruda-893b19274/)  
+Instagram: [@arthurarruda__](https://www.instagram.com/)  Linkedin:[@ArthurArruda](https://www.linkedin.com/in/arthur-arruda-893b19274/)  Email: [arruda.arthur703@gmail.com](https://mail.google.com/mail/u/0/#inbox)
